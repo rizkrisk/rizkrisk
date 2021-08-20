@@ -1,1 +1,1 @@
-\|/ Fogo na brenfa \|/
+.\|/ Fogo na brenfa .\|/
