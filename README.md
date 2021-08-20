@@ -1,1 +1,1 @@
-.\|/ Fogo na brenfa .\|/
+Legaliza Brasil !!!
